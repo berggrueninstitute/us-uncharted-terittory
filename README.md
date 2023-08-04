@@ -1,1 +1,1 @@
-# us-uncharted-terittory
+# us-uncharted-territory
